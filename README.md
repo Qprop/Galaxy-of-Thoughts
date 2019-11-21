@@ -18,16 +18,20 @@ Communication is at the core of human societies, cultures and being. The constan
 Language, intonation of various sounds to produce letters forming words ultimately sentences. Further creating a web of conversation. We are able to store human memories through language being able to share experiences from one generation to another, moving from truths to stories to myths.
 
 
-Queries always linger in my mind, on how homo sapiens have evolved to such an extent as communicating with such a form, language. Approximate figures place the number of languges in the world at (6500)[https://www.infoplease.com/askeds/how-many-spoken-languages], this are not fully unique languages as majority hold a resemblance or share certain words. That aside the marvel of having all this language and still beig able to direct, guide and share is nothing short of glorious.
+Queries always linger in my mind, on how homo sapiens have evolved to such an extent as communicating with such a form, language. Approximate figures place the number of languges in the world at [6500](https://www.infoplease.com/askeds/how-many-spoken-languages), this are not fully unique languages as majority hold a resemblance or share certain words. That aside the marvel of having all this language and still beig able to direct, guide and share is nothing short of glorious.
 
 
 These has led me to ask, what are the origin of langauge. Pardon me for my naivity, I will excuse myself am not a linguist neigther an anthoropolgist, I lack any history background. Most of what I think are my own casual inference based on the limited knowledge I have thus far. 
 As far as I am concerned we do not have any trace or origin of language, no ground zero start point of language. It is almost synonymous to human nature we just start talking at some point as part of growth, probably would relate to how certain animals pick up walking on all fours in less than hours time from birth. Do get me correctly I have just said talk not really make sense, the sense part of communication comes up way later. We pick up speech from our environment, the different conversation we start hearing. The more we call a baby mum or dad the first word they will utter will be either of the two. Here is now where conversation starts.
+
+
 Part of the human psyche is being able to process the revibration of vocal codes to make understanding of speech. That meant at some point there has to be an agreement on the structure and sequence of this revibration to be able to conclude what we are communicating.
 I have not been able to trace the start of verbal structural communication as we know it, this seems to have developed as some of our other senses i.e. sight, smell, touch and hearing. 
 
 
 From one of the religious group we note that language was universal with only one similar language, till the this was broken down to different languages, thus in one day we went from one language to multiple diverse language.
+
+
 Scientifically or rather historically as homo species continued to explore the world from the known world at the time, languages continued to evolve too differently due to change of environment and discovery of new materials, flora and fauna. Imagine moving from the center of the continent which is landlock to moving to the end of the continent where you meet the ocean for the first time. You will name the ocean or give it some sort of descriptive word. Thus morphologizing of languages, this though does not account for the distinctness of languages, where no single word is common or even meaning. Listening to people speak languages I cannot understand fathoms me at how we has humans are very intricate, complex and at bear minimum complicated. The interplay of words, accent and pronunciation from the click of Nkosa in South of Africa to the whistles of Silbo Gomero languge in the coast of spain.
 
 
