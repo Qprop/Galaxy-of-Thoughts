@@ -1,7 +1,7 @@
->  Galaxy of Thoughts
- * Random thoughts that slide through my mind
- * Nothing conclusive but very curious
- * Random thoughts that walk, run and skid through my mind. At times when am busy with daily task or basically seated under a tree borrowing from my mentor Isaac Newton, always waiting for something to fall. Hopeful to squel Eureka
+>  **Galaxy of Thoughts**
+>> * Random thoughts that slide through my mind
+>> * Nothing conclusive but very curious
+>> * Random thoughts that walk, run and skid through my mind. At times when am busy with daily task or basically seated under a tree borrowing from my mentor Isaac Newton, always waiting for something to fall. Hopeful to squel Eureka
 
 > **Mental journies shuttling between utopia, dystopia and bordering paranoia.**
 
@@ -10,6 +10,7 @@
 
 
 # **BEAUTY OF LANGUAGE**
+-------------------------
 
 Under the tree scenarios play a lot in my mind, questioning and marveling at the interesting facets and cravices of the world. The complex nature of which we find ourselves in, dynamism, mystism, elusions and perfections all sewn into one. One would be forgiven for not appreciating all the asthetics that come from the universe.
 
@@ -38,4 +39,4 @@ Scientifically or rather historically as homo species continued to explore the w
 Interestingly language like life is not infinite it is finite, with historical material mentioning that some of languages are extinct and others are new languages, other languages are old language which have survived the times. Other languages are still taught and spoken but not actively used for example Latin. Forgive me if am limited in scope interms of all languages spoken and the emerging or disappearance of language. 
 
 
-One thing for sure is converging of languages which is being experienced, it is as if we at some poit are working to words one common universal language, the new langauge will have interesting facets inclusion of pictorial representation some already have names Emojis :). Which ever that language will be we have already translated most commonly spoken languages to other commonly spoken languages. With the emergence of natural language processing then this translation will continue further as word translation has happened the next frontier will be sentence structure translation.
+One thing for sure is converging of languages which is being experienced, it is as if we at some point are working to words one common universal language, the new langauge will have interesting facets inclusion of pictorial representation some already have names Emojis :). Which ever that language will be we have already translated most commonly spoken languages to other commonly spoken languages. With the emergence of natural language processing then this translation will continue further as word translation has happened the next frontier will be sentence structure translation.
