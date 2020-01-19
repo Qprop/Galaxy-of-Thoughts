@@ -1,7 +1,7 @@
 >  **Galaxy of Thoughts**
 >> * Random thoughts that slide through my mind
 >> * Nothing conclusive but very curious
->> * Random thoughts that walk, run and skid through my mind. At times when am busy with daily task or basically seated under a tree borrowing from my mentor Isaac Newton, always waiting for something to fall. Hopeful to squel Eureka
+>> * Random thoughts that walk, run and skid through my mind. At times when am busy with daily task or basically seated under a tree borrowing from my mentor Isaac Newton, always waiting for something to fall. Hopeful to squeal Eureka
 
 > **Mental journies shuttling between utopia, dystopia and bordering paranoia.**
 
