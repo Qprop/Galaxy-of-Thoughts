@@ -1,6 +1,7 @@
 [Back](https://qprop.github.io/Galaxy-of-Thoughts/)
 
-# 2020 Readling list
+# **2020 Readling list**
+________________________
 
 on **1/1/2020** started the year with my first book. It had been on my reading list over an year, yes I have a reading list or rather collection of suggested books that I keep track of. My favourite reads have been mainly referrals from previous readers, apart from a few which either I stumble upon and get engrossed into like when I found the book ![The 17 equations that changed the course of history](https://images-na.ssl-images-amazon.com/images/I/51zc7ZMRzNL._SX331_BO1,204,203,200_.jpg) idling scouring my local bookshop for another title. From the preface it looked like a fantastic read, made me forget the original title I was there to look for.
 
