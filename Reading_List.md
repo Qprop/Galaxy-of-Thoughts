@@ -1,3 +1,5 @@
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
+
 # 2020 Readling list
 
 on **1/1/2020** started the year with my first book. It had been on my reading list over an year, yes I have a reading list or rather collection of suggested books that I keep track of. My favourite reads have been mainly referrals from previous readers, apart from a few which either I stumble upon and get engrossed into like when I found the book ![The 17 equations that changed the course of history](https://images-na.ssl-images-amazon.com/images/I/51zc7ZMRzNL._SX331_BO1,204,203,200_.jpg) idling scouring my local bookshop for another title. From the preface it looked like a fantastic read, made me forget the original title I was there to look for.
@@ -9,8 +11,6 @@ He picks a lot of anecdotes from various source but mainly from christian theolo
 
 As such the 12 Rules are not law but rather pointers and topical debates on matters social and personal, with one of the chapters being _"Do not let your children do anything that makes you dislike them"_ what would you expect. I will save you the trouble of reading through the book but my picks were overtly:
 
-[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
-
 * You need to believe in yourself, pysche yourself up. Induce the postive aspects even though you do not feel it, lie to your body to produce the feel good feelings.
 * Be humble and do good to everything and everyone, at the same time do not allow people to overstep, missuse you as you try to be good. Treat others as you would treat yourself.
 * Plan for the future but remember to live in the present, this sets you to something you will be looking forward to. That goes without saying.
@@ -20,4 +20,4 @@ A lot of the rules resounded to what I had read in ![The Four Agreements](https:
 
 Am still torn between calling **12 Rules** a personal motivation or just a guide thought provoking book? Guess I won't be able to decide anytime soon. I would though suggest it as a read to anyone who fancies anecdotal stories from crabs and peacking order, to skate boarders and wanting dangerous thrills, to forcing and teaching kids obedience and routine.
 
-
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
