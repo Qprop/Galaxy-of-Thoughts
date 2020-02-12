@@ -1,3 +1,5 @@
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
+
 # **BEAUTY OF LANGUAGE**
 -------------------------
 
