@@ -5,6 +5,7 @@
 
 > **Mental journies shuttling between utopia, dystopia and bordering paranoia.**
 
-[Beauty of Language](beauty_language.html "1. Beauty of Language")
-[Jan 2020 Reading List](Reading_List.html "2. Jan 2020 Reading List")
+[1. Beauty of Language](beauty_language.html "1. Beauty of Language")
+
+[2. Jan 2020 Reading List](Reading_List.html "2. Jan 2020 Reading List")
 
