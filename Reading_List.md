@@ -9,6 +9,8 @@ He picks a lot of anecdotes from various source but mainly from christian theolo
 
 As such the 12 Rules are not law but rather pointers and topical debates on matters social and personal, with one of the chapters being _"Do not let your children do anything that makes you dislike them"_ what would you expect. I will save you the trouble of reading through the book but my picks were overtly:
 
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
+
 * You need to believe in yourself, pysche yourself up. Induce the postive aspects even though you do not feel it, lie to your body to produce the feel good feelings.
 * Be humble and do good to everything and everyone, at the same time do not allow people to overstep, missuse you as you try to be good. Treat others as you would treat yourself.
 * Plan for the future but remember to live in the present, this sets you to something you will be looking forward to. That goes without saying.
