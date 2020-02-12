@@ -5,7 +5,7 @@
 
 > **Mental journies shuttling between utopia, dystopia and bordering paranoia.**
 
-[Jan 2020 Reading List](Reading_List.md "Jan 2020 Reading List")
+[Jan 2020 Reading List](Reading_List.html "Jan 2020 Reading List")
 
 
 
