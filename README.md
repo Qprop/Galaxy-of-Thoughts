@@ -5,7 +5,7 @@
 
 > **Mental journies shuttling between utopia, dystopia and bordering paranoia.**
 
-
+[Jan 2020 Reading List](https://github.com/Qprop/Galaxy-of-Thoughts/Reading List.md "Jan 2020 Reading List")
 
 
 
