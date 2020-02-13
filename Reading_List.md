@@ -9,7 +9,7 @@ on **1/1/2020** started the year with my first book. It had been on my reading l
 
 Idling scouring my local bookshop for another title. From the preface it looked like a fantastic read, made me forget the original title I was there to look for.
 
-For January my read was `**12 Rules for Life: An Antidote to Chaos**` by Jordan Peterson, a suggestion I had gotten from an acquintance I met last year when swimming away in one of those rear occassions I found myself swimming. Pretending to be relax while still drowning myself literally on some title most presumably one of _Yuval Noah Harari_ master pieces, fortunate enough to have read all the three published books he has, mind provoking material he has there.
+For January my read was **12 Rules for Life: An Antidote to Chaos** by Jordan Peterson, a suggestion I had gotten from an acquintance I met last year when swimming away in one of those rear occassions I found myself swimming. Pretending to be relax while still drowning myself literally on some title most presumably one of _Yuval Noah Harari_ master pieces, fortunate enough to have read all the three published books he has, mind provoking material he has there.
 
 
 Back to **12 Rules** I was amazed by his simple articulate explanation of chaos, it's exsistance being the fabric that necessitates order. 
