@@ -14,3 +14,5 @@ This queer is not the vile one but the ones that transgress when you having conv
 
 [2. Jan 2020 Reading List](Reading_List.html "2. Jan 2020 Reading List")
 
+[3. Feb 2020 Reading List](feb20_reading_list.html "2. Feb 2020 Reading List")
+
