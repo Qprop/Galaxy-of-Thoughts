@@ -8,10 +8,10 @@ I was able to read 3 books namely:
 
 | No. | Book                       | Author
 |----|----------------------------| --------
-| 1.  | Killing the mocking bird   | Harper Lee
-| 2.  | Prisoners of Geography     | Tim Marshall
-| 3.  | The tattooist of Auschwitz | Heather Morris
-| 4.  | Never Split the Difference | Christopher Voss
+| 1.  | [To Kill a mocking bird](https://www.amazon.com/Kill-Mockingbird-Harperperennial-Modern-Classics-ebook/dp/B00K0OI42W/ref=sr_1_1?keywords=killing+the+mockingbird&qid=1583126795&s=digital-text&sr=1-1)  | Harper Lee
+| 2.  | [Prisoners of Geography](https://www.amazon.com/Prisoners-Geography-Explain-Everything-Politics-ebook/dp/B00V3L8ZHK/ref=sr_1_1?keywords=Prisoners+of+Geography&qid=1583126768&s=digital-text&sr=1-1)     | Tim Marshall
+| 3.  | [The tattooist of Auschwitz](https://www.amazon.com/Tattooist-Auschwitz-Novel-Heather-Morris-ebook/dp/B0756DZ4C1/ref=sr_1_1?keywords=The+tattooist+of+Auschwitz&qid=1583126736&s=digital-text&sr=1-1) | Heather Morris
+| 4.  | [Never Split the Difference](https://www.amazon.com/Never-Split-Difference-Negotiating-Depended-ebook/dp/B014DUR7L2) | Christopher Voss
 
 **Killing the mocking bird**
 
