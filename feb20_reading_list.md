@@ -52,3 +52,4 @@ Resource being exploited and traded globally determines your control of the worl
 
 Dynamism in international diplomacy relations doesn't make it easy to predict but for sure we are able to hypothesis.
 
+Technological disruption is breaking barriers that geography imposed, were it would take days crossing seas and oceans now is taking hours using aircraft. Wars that needed foot soldiers now only require drones being operated by joysticks thousands of kilo meters away.
