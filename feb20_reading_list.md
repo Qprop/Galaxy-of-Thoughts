@@ -13,7 +13,7 @@ I was able to read 3 books namely:
 | 3.  | [The tattooist of Auschwitz](https://www.amazon.com/Tattooist-Auschwitz-Novel-Heather-Morris-ebook/dp/B0756DZ4C1/ref=sr_1_1?keywords=The+tattooist+of+Auschwitz&qid=1583126736&s=digital-text&sr=1-1) | Heather Morris
 | 4.  | [Never Split the Difference](https://www.amazon.com/Never-Split-Difference-Negotiating-Depended-ebook/dp/B014DUR7L2) | Christopher Voss
 
-**Killing the mocking bird**
+**To Kill a mocking bird**
 
 Setting of **Killing the mocking bird** is 1930's down south America, small town in Alabama. Normal rumblings of typical small towns back then, struggling families former larger land owners, third generation slave owners. New settlements of new people around the area from different parts of the world.
 
