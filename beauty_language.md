@@ -3,7 +3,7 @@
 # **BEAUTY OF LANGUAGE**
 -------------------------
 
-Under the tree scenarios play a lot in my mind, questioning and marveling at the interesting facets and cravices of the world. The complex nature of which we find ourselves in, dynamism, mystism, elusions and perfections all sewn into one. One would be forgiven for not appreciating all the asthetics that come from the universe.
+Under the tree scenarios play a lot in my mind, questioning and marveling at the interesting facets and crevices of the world. The complex nature of which we find ourselves in, dynamism, mystism, elusions and perfections all sewn into one. One would be forgiven for not appreciating all the asthetics that come from the universe.
 
 
 Communication is at the core of human societies, cultures and being. The constant longing for expression of self to the universe, seeking attention or addressing a need. These various forms of expressions are intriging not to say the least my main focus is on language.
@@ -17,7 +17,7 @@ These has led me to ask, what are the origin of langauge. Pardon me for my naivi
 As far as I am concerned we do not have any trace or origin of language, no ground zero start point of language. It is almost synonymous to human nature we just start talking at some point as part of growth, probably would relate to how certain animals pick up walking on all fours in less than hours time from birth. Do get me correctly I have just said talk not really make sense, the sense part of communication comes up way later. We pick up speech from our environment, the different conversation we start hearing. The more we call a baby mum or dad the first word they will utter will be either of the two. Here is now where conversation starts.
 
 
-Part of the human psyche is being able to process the revibration of vocal codes to make understanding of speech. That meant at some point there has to be an agreement on the structure and sequence of this revibration to be able to conclude what we are communicating.
+Part of the human psyche is being able to process the reverberation of vocal codes to make understanding of speech. That meant at some point there has to be an agreement on the structure and sequence of this revibration to be able to conclude what we are communicating.
 I have not been able to trace the start of verbal structural communication as we know it, this seems to have developed as some of our other senses i.e. sight, smell, touch and hearing. 
 
 
