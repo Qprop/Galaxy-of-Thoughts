@@ -53,3 +53,18 @@ Resource being exploited and traded globally determines your control of the worl
 Dynamism in international diplomacy relations doesn't make it easy to predict but for sure we are able to hypothesis.
 
 Technological disruption is breaking barriers that geography imposed, were it would take days crossing seas and oceans now is taking hours using aircraft. Wars that needed foot soldiers now only require drones being operated by joysticks thousands of kilo meters away.
+
+
+**The tattooist of Auschwitz**
+
+Touching read from one of the worst past human history in the 20th century, during the period of 1940 and 1944. When the Nazis started rounding up Jews from across most of eastern Europe taking them to concentration camps.
+
+To be honest when I first got the book I thought it would be the likes of the much reclaimed movie *Escape from Sobibor*. Shock on me yes it had the sorry state of affairs in the concentration camps but the book had a story of love of hope and belief.
+
+This is a biography with a sweet, bitter, sad twist of love and fate. As shared to the author the first account of the victim who happened to be in the concentration camp himself a prisoner.
+
+Being multilingual and shrewd he was able to secure himself at least some meaningful nontrecherous hard labor work like the rest of the prisoners. Though not really any better he was in the front line receiving new prisoners and inking them their new identification a number tattooed to the hand. 
+Thus losing all their identity and only now being known by their number. 
+
+Within this process he meets new female prisoner and falls head over heels. Though in sordid conditions, he strives to make best to make his lover comfortable despite the appalling situation. Going through the ravenous, murderous scorn of camp guards and officials. 
+A tale of perseverance determination and hope for a better future the strive and will to live.
