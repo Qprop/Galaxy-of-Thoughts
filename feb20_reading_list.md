@@ -69,3 +69,19 @@ Thus losing all their identity and only now being known by their number.
 
 Within this process he meets new female prisoner and falls head over heels. Though in sordid conditions, he strives to make best to make his lover comfortable despite the appalling situation. Going through the ravenous, murderous scorn of camp guards and officials. 
 A tale of perseverance determination and hope for a better future the strive and will to live.
+
+
+**4. Never Split the Difference**
+
+Former FBI lead negogiator takes us through the nitty grittys of what it takes to be a good negotiator.
+Encouraging everyone that it is not to be afraid but to be enjoyed and experienced. Mentioning that you value what you negotiated for rather than one you did not.
+As per the title his emphasis is never take divided(split) the difference between your proposed amount and the other parties sides amount. It is a game that we need to play and should not lead to a win win situation for both of you but a win for you.
+
+He shares insights accrued from the years in the FBI from a street beat cop, to discourse and engagements he has had with technocrats professors from the ivy league universities. 
+His approach is from experience rather than theoretical rhetorics. He mentions the various hostage, terrorist and hijackings he has had to handle. Not the one to shy away from his failures in equal measure to the successes he managed. He draws critical lessons from both.
+
+Negotiating is happening everywhere all the time. Key takeouts we should strive to get the subtle non verbal cues being shared, understand the underlying cultural personal influences of the other parties.
+Take your time always there is not rush when negotiating it buys you time to understand the other party. Earning you leverage. Mirroring whatever question or response that is given, makes the other party either correct their position or feel you understand them.
+Question always where is is not clear with words like "*How* am I going to achieve that", "How will that be even be possible". This makes the other party rethink for you.
+
+This is one of the reads that should not be read once but repeated severally. All this methods cannot be practiced immediately but you can use one and adopt the other. You get to learn the **Black Swan** strategy.
