@@ -27,6 +27,8 @@ Now take your time to create the need list of what is necessary expenses you nee
 
 5. Giving: Share this knowledge, share this wealth, teach. Learn to have a surplus mentality by giving, this eradicates the poverty mentality where you believe you have little and not enough to share.
 
+```
+
 Finally practice the above all the time, lest it becomes something you read and forgot.
 
 
