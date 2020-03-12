@@ -15,7 +15,6 @@ My picks and read for march, not really related at all. I prefer alternating bet
 
 Money, wealth and richness very different things, elicits very many debates. As you might have intuitively guessed yes this is a book about wealth through money. Get your house in order, plan organize your finances at the different levels.
 
-``
 1. Change your perception of what money easy, erase the learnings of your former child growing where money was not talked about. Be deliberate in your speech about money either to yourself or to others. Accept that this can both be grown or lost.
 
 2. Write down your assets and liabilities look at the difference are you at a profit that is surplus or at a loss with negative amount. It is a matter of being truthful to yourself and admitting and jotting down all this what you have in terms of physical assets am not including things like phones here or TV and liabilities here being loans and expenses. Do not be worried when the figures shock you that takes us to the next step.
@@ -26,7 +25,7 @@ Now take your time to create the need list of what is necessary expenses you nee
 4. Investment: We look at places you can increase your income here is where, I do not have a lot of input because there are so many investment vehicles. What I can tell you is do your research on the investment and again ask ask ask. Though Waceke did not include this at investment personally I include it here any extra source of income from your hobbies *side hustle*.
 
 5. Giving: Share this knowledge, share this wealth, teach. Learn to have a surplus mentality by giving, this eradicates the poverty mentality where you believe you have little and not enough to share.
-``
+
 
 Finally practice the above all the time, lest it becomes something you read and forgot.
 
