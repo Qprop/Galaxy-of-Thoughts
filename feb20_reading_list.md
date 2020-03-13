@@ -1,3 +1,5 @@
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
+
 # February Reading List
 
 February has been an interesting month, it was the month of the palindrome date *02/20/2020*, full blown worry about probable emminent epidemic corona virus named **covId-19** among other global phenomena.
@@ -85,3 +87,6 @@ Take your time always there is not rush when negotiating it buys you time to und
 Question always where is is not clear with words like "*How* am I going to achieve that", "How will that be even be possible". This makes the other party rethink for you.
 
 This is one of the reads that should not be read once but repeated severally. All this methods cannot be practiced immediately but you can use one and adopt the other. You get to learn the **Black Swan** strategy.
+
+
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
