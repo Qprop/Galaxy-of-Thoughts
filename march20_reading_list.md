@@ -1,3 +1,6 @@
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
+
+
 # March Reading List
 
 The month I found myself starting with a reading list of 11 physical books to read. Clearly my next couple months have been sorted out. I am used to reading while on transit started some while back when my commute to and from work was close to two and half hours, rather than complain and indulge on online chatter profile stalking and all other manner of utter online social media shenanigans. Book always at hand has become synonymous with my persona, could be it is my way of avoiding idle conversation created by boredom in traffic. Happened to attend training, in the course of the two day worth of training. My instructor noticed my read then, definitely it intrigued her and it started our conversation long story short the next day she brought me 5 books.
@@ -43,3 +46,5 @@ A mix of the supernatural and unexplained connections with this hotel even when 
 How can he be able to decipher this quagmire? Seems like death was following people he meets, what his is connection. 
 
 Intrigue page and head turner, twists beautifully merged intertwined.
+
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
