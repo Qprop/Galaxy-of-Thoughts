@@ -43,7 +43,7 @@ Meet the Japanese man, who is a writer. Just recently divorced, parted way with 
 
 A mix of the supernatural and unexplained connections with this hotel even when he his back to Tokyo. He meets the hotel receptionist, Yuki the teenager with celebrity parents but she is disconnected with the world, Kiki a call girl, Golinda his former high school classmate his profession an actor and Mei another call girl. All this connected to him as explained in the lacquer-black room from the sheep-man. 
 
-How can he be able to decipher this quagmire? Seems like death was following people he meets, what his is connection. 
+How can he be able to decipher this quagmire? Seems like death was following people he meets, what is his connection. 
 
 Intrigue page and head turner, twists beautifully merged intertwined.
 
