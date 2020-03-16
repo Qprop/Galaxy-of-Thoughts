@@ -48,8 +48,8 @@ Globalisation in as much as it creates the problems we now face but could offer 
 More diverse people providing technical knowledge, sharing age old wisdoms are offering the much needed help that is being sort after.
 
 
-All in all this is the time for change, the tipping point is hear. 22nd century is now experiencing pivotal escalations and maybe this is it. The next generation will probably here of the achievements or failures of this point in time. They shall be our judge as we make history for the future.
-Our battle is now set, resilience effort and braveity is needed. Take action, take the risk we do not know what is coming but we can try steer ourselves to a direction we would want.
+>> All in all this is the time for change, the tipping point is hear. 22nd century is now experiencing pivotal escalations and maybe this is it. The next generation will probably here of the achievements or failures of this point in time. They shall be our judge as we make history for the future.
+>> Our battle is now set, resilience effort and braveity is needed. Take action, take the risk we do not know what is coming but we can try steer ourselves to a direction we would want.
 
 
 
