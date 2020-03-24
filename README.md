@@ -21,3 +21,5 @@ _____________________________________________________________________
 [4. March 2020 Reading List](march20_reading_list.html "4. March 2020 Reading List")
 
 [5. World change after the virus](world_change.html "5. World change after the virus")
+
+[6. Tragedy of commons CovID-19 case](tragedy_of_commons.html "6. Tragedy of commons CovID-19 case")
