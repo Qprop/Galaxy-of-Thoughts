@@ -9,6 +9,7 @@ output: html_document
 knitr::opts_chunk$set(echo = TRUE)
 ```
 
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
 
 Beeing somewhat an avid reader, I usually get queries on books I can suggest to people for them to read.
 
@@ -35,6 +36,9 @@ dt <- arrange(dt, desc(Date))
 
 ```{r pressure, echo=FALSE}
 datatable(dt, filter = 'top', options = list(
-  pageLength = 30, autoWidth = TRUE
+  pageLength = 10, autoWidth = TRUE
 ))
 ```
+
+
+[Back](https://qprop.github.io/Galaxy-of-Thoughts/)
