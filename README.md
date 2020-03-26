@@ -11,15 +11,16 @@ This queer is not the vile one but the ones that transgress when you having conv
 
 _____________________________________________________________________
 
+# All Posts
 
-[1. Beauty of Language](beauty_language.html "1. Beauty of Language")
+[1. Beauty of Language](/blog/2020/beauty_language.html "1. Beauty of Language")
 
-[2. Jan 2020 Reading List](Reading_List.html "2. Jan 2020 Reading List")
+[2. Jan 2020 Reading List](/blog/2020/Reading_List.html "2. Jan 2020 Reading List")
 
-[3. Feb 2020 Reading List](feb20_reading_list.html "3. Feb 2020 Reading List")
+[3. Feb 2020 Reading List](/blog/2020/feb20_reading_list.html "3. Feb 2020 Reading List")
 
-[4. March 2020 Reading List](march20_reading_list.html "4. March 2020 Reading List")
+[4. March 2020 Reading List](/blog/2020/march20_reading_list.html "4. March 2020 Reading List")
 
-[5. World change after the virus](world_change.html "5. World change after the virus")
+[5. World change after the virus](/blog/2020/world_change.html "5. World change after the virus")
 
-[6. Tragedy of commons CovID-19 case](tragedy_of_commons.html "6. Tragedy of commons CovID-19 case")
+[6. Tragedy of commons CovID-19 case](/blog/2020/tragedy_of_commons.html "6. Tragedy of commons CovID-19 case")
