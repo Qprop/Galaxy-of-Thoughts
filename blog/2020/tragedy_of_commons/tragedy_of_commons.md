@@ -2,7 +2,7 @@
 
 # Tragedy of commons **CovID-19 case**
 
-The numerous empty shelves we hvae witnessed across the various countries in the supermarkets is really a spectacal. 
+The numerous empty shelves we have witnessed across the various countries in the supermarkets is really a spectacal. 
 At first you would think it is black friday at the start of the year all over.
 But no the jostling and hustling each other over tissue paper was not because of great offers.
 On slaught of probable lock down after what we have witnessed in China, might have caused a scare.
