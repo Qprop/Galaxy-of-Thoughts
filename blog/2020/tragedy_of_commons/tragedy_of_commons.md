@@ -24,7 +24,7 @@ To save you the trouble here is a [link](https://en.wikipedia.org/wiki/Tragedy_o
 
 
 This theory was originally brought to fore in 1833 and how it appllies to us some 180 years later is fascinating.
-May be if we remembered that this is resource that will need replenishing and should be shared. 
+May be if we remembered that this is a resource that will need replenishing and should be shared. 
 We will not panic and go stock out the supermarkets.
 
 
