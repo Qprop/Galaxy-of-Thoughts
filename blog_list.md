@@ -6,7 +6,7 @@ March 2020
 
 [1. Tragedy of commons CovID-19 case](https://qprop.github.io/Galaxy-of-Thoughts/blog/2020/tragedy_of_commons/tragedy_of_commons "1. Tragedy of commons CovID-19 case")
 
-[2. World change after the virus](https://qprop.github.io/Galaxy-of-Thoughts/blog/2020/world_change /world_change)
+[2. World change after the virus](https://qprop.github.io/Galaxy-of-Thoughts/blog/2020/world_change/world_change "2. World change after the virus")
 
 February 2020
 
