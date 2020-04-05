@@ -2,6 +2,10 @@ _____________________________________________________________________
 
 # All Posts
 
+April 2020
+
+[1. Stay with me (Book Review)](https://qprop.github.io/Galaxy-of-Thoughts/blog/2020/stay_with_me/stay_with_me "1. Stay with me (Book Review)")
+
 March 2020
 
 [1. Tragedy of commons CovID-19 case](https://qprop.github.io/Galaxy-of-Thoughts/blog/2020/tragedy_of_commons/tragedy_of_commons "1. Tragedy of commons CovID-19 case")

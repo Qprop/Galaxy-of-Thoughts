@@ -1,6 +1,13 @@
 [Back](https://qprop.github.io/Galaxy-of-Thoughts/)
 
 # Stay with me - Ayobami Adebayo
+*Fiction*
+
+> I was not sleepy so midnight of 5th April I start reading to push the hours before slumber kicks in. 
+> Woe unto me I end up 8 hours later having not have slept but read the book throught out the night, loving the story line.
+
+
+
 
 Setup in the late 80's to 90's Nigeria backdrop, we are introduced to Yejide wife to Akin. Who are the proverbial love at first sight couple.
 But the intrigues that underpins their marriage have a shaky foundation. Four years without blesssings of additional member of the family is causing a strain to the couple especially to Yejide.
