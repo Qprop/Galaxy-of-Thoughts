@@ -1,7 +1,7 @@
 
 [Back](https://qprop.github.io/Galaxy-of-Thoughts/)
 
-#Aventure with Kanduyi#
+## Aventure with Kanduyi
 
 *Fiction\Factual*
 
